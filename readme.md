@@ -1,0 +1,1 @@
+Pozor toto nie je skuska
